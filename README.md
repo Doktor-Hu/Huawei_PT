@@ -16,7 +16,7 @@
 
 
 
-## 个人感受（建议非常喜欢华为的，学校出身特别好的，能力特别出色的跳过）：
+## 个人感受（建议非常喜欢华为文化的，学校出身特别好的，能力特别出色的跳过）：
 
 &downarrow;
 <br/>
@@ -49,4 +49,32 @@
 &downarrow;
 <br/>
 
-*** 个人认为是因为学校不在target school list上
+*** 笔者想再次强调： 以下内容不适用，非常喜欢华为文化的，学校出身特别好的，能力特别出色的跳过(无意辩论) ***
+
+<br/>
+&downarrow;
+<br/>
+&downarrow;
+<br/>
+&downarrow;
+<br/>
+&downarrow;
+<br/>
+&downarrow;
+<br/>
+&downarrow;
+<br/>
+&downarrow;
+<br/>
+&downarrow;
+<br/>
+&downarrow;
+<br/>
+&downarrow;
+<br/>
+&downarrow;
+<br/>
+&downarrow;
+<br/>
+
+个人认为是因为学校不在target school list上
